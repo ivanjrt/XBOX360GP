@@ -14,6 +14,10 @@ But I did have a XBOX360.<br/>
 so I took the idea and I created this:
 
 
+![image](https://user-images.githubusercontent.com/44326428/194680567-10baad1e-3265-49b4-82de-224e17dcd16a.png)
 
+![image](https://user-images.githubusercontent.com/44326428/194680603-fcca7e2f-292d-4d8b-b206-682986222895.png)
+  
+![image](https://user-images.githubusercontent.com/44326428/194680613-df410889-9bd1-4d72-aa7a-1a4cd5f86862.png)
 
-   
+I designed this when I was just in my early 20s w/o any Electronics background or University or even college
